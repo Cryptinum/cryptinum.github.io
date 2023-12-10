@@ -1,2 +1,0 @@
-# cryptinum.github.io
- 
